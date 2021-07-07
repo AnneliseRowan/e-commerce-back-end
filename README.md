@@ -24,5 +24,5 @@ Internet retail, also known as **e-commerce**, is the largest sector of the elec
 
 ## Video Link
 
-https://youtu.be/zOGKV9bKGVE
+https://youtu.be/WQNqNQsFRZc
 
